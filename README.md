@@ -1,6 +1,16 @@
 Hi🥱 Iam SANI KHAN
 
-⚔️King Of Haters👑 ➡My Life My Rules ➡Attitude BoY😎 SMOKER BOY🚬 ➡Photography♥️ ➡Wish Me On 12 FebruarY🎂
+⚔️King Of Haters👑
+
+😊My Life My Rules 
+
+🔥Attitude BoY😎
+
+🤧SMOKER BOY🚬
+
+📸Photography💞💓
+
+ 📢Wish Me On 12 FebruarY🎂🎷
 
 Skills: PYTHON/HTML
 
