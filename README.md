@@ -13,12 +13,3 @@ My Whatsapps Number +8801930558938
 My Instagram Account @sani_khan_official_
 
 Instagram Follow KrO Sobai💓💞
-
-
-github facebook
-
-     
-
-trophy
-
-
