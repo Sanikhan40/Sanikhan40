@@ -13,7 +13,7 @@
 </h3>
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F72121&size=25&duration=7000&center=true&vCenter=true&multiline=true&height=100&lines=🌹+I+am+SANI+OKY+🌹)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F72121&size=25&duration=7000&center=true&vCenter=true&multiline=true&height=100&lines=🌹+I+am+SANI+KHAN+🌹)](https://git.io/typing-svg)
 
 ![106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594 (1)](https://user-images.githubusercontent.com/79738922/150628863-e161ecb3-06fe-4656-be20-9122ed533309.gif)
 
